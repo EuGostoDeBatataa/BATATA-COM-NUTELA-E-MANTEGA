@@ -8,4 +8,6 @@
 
 -UTILIZO ESTE ESPAÇO PARA DISTRIBUIÇÃO
 
+-CONTRIBUIÇÕES: Jesse pinkman,Saul Goodman,Hank
+
 ![](https://media1.tenor.com/m/cDl7v8avyC0AAAAd/breaking-bad-walter-white.gif)
