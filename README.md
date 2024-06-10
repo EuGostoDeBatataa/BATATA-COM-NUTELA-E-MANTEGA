@@ -6,7 +6,7 @@
 
 -MEU NOME É SAMUEL
 
--ESSTOU NO MEIO DO DESERTO
+-ESTOU NO MEIO DO DESERTO
 
 -ESTOU DESENVOLVENDO METANFETAMINA NO MEU TRAILER
 
@@ -14,6 +14,25 @@
 
 -VIDEO EDUCATIVO DE TRABALHO: [???](https://youtu.be/8ot-arJwvCA?si=8B9R3WkRzzUye2K0)
 
--CONTRIBUIÇÕES: Jesse pinkman,Saul Goodman,Hank
-
+EU
 ![](https://media1.tenor.com/m/cDl7v8avyC0AAAAd/breaking-bad-walter-white.gif)
+
+
+JESSE PINKMAN
+![](https://media.tenor.com/fRqedZHZlDMAAAAi/jesser.gif)
+
+ SAUL GOODMAN
+![](https://media1.tenor.com/m/pMhSj9NfCXsAAAAd/saul-goodman-better-call-saul.gif)
+
+
+
+GUS FFRING
+![](https://media1.tenor.com/m/tLj7ovIXimoAAAAC/gus-fring-jumpscare.gif)
+
+
+MIKE EHRMANTRAUT
+![](https://media1.tenor.com/m/NwImWMPPUI0AAAAd/panical-itechcaptain.gif)
+
+
+HELENCO
+![](https://media1.tenor.com/m/yNMlNMbJp9QAAAAd/breaking-bad-meme.gif)
